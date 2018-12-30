@@ -1,0 +1,1 @@
+# Bilangan-kelipatan-7-yang-habis-di-bagi-2-dari-1-50
